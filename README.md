@@ -2,6 +2,4 @@
 
 Im fullstack developer,
 
-if someones want to contanct me add me in instagram
-
-IG: krejzltc
+if someones want to contanct me add me on instagram
